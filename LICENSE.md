@@ -1,4 +1,4 @@
-# 
+# vip SQL Server Management Studio for PC | SQL Server Management Studio for Windows Integration | database-design + data-visualization offers the most advanced SQL Server
 
 
 
